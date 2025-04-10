@@ -1,3 +1,3 @@
 # defragyourmind
-NFT Developer + Technical Writer
+On-Chain Asset Developer + Technical Writer
 832457964@proton.me
